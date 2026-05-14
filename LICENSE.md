@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with smart Polymarket Tool | trailing-stops + custom-strategies, the #1 tool. Includes trailing-stops and custom-strategies for a smoother and more
 
 
 
